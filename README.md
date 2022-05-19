@@ -30,7 +30,7 @@
 <p style="text-align: center;"align="center"> <img src= https://media2.giphy.com/media/xUPGcrEwuDJmKeDZK0/giphy.gif>
 
 ## For Daddys
-- https://www.paypal.me/HideakiAtsuyoLmao
+- https://www.paypal.me/-
 - BTC(Bitcoin): `bc1qhqmk0qmsqr3y77rea9w92d896m5mx3r3tm5kwh`
 - ETH(Etherum): `0x5d0FB6C61C99e8B59c15D1Fde3bb80912A47B30E`
 - SOL(Solana): `6Jud6ydRtR4FZ1iLXfeuEotbwCc1euiya8QvGZ6c5g7b`
