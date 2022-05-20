@@ -1,6 +1,6 @@
 ### 🍧♥𝒶𝓈𝑒𝒽𝓉𝑒𝓉𝒾𝒸𝓈.𝓍𝑜𝓍𝑜♥🍧
 
-![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blue)
+![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
 <br>
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-4/942531932363817041.png)](https://discord.com)
 
@@ -24,10 +24,10 @@
   <p style="text-align: center;"align="center">
   <summary> ➤ Visits </summary><img src="https://profile-counter.glitch.me/user2bad/count.svg" /></h3>
   <p style="text-align: center;"align="center">
-  <summary> ➤ ✦✍️ </summary><img src="https://github-readme-stats.vercel.app/api?username=user2bad&&show_icons=true&title_color=2e49a51&icon_color=2e49a51&text_color=220a83&bg_color=151515" /></h3>
+  <summary> ➤ ✦✍️ </summary><img src="https://github-readme-stats.vercel.app/api?username=user2bad&&show_icons=true&title_color=361796&icon_color=361796&text_color=361796&bg_color=151515" /></h3>
   <p style="text-align: center;"align="center">═════════════════════════════════════════════════════════════</p>
 </details>
-<p style="text-align: center;"align="center"> <img src= https://cdn.discordapp.com/attachments/964925132130897992/977203345083232296/ezgif-2-35b0f08c63.gif>
+<p style="text-align: center;"align="center"> <img src= https://cdn.discordapp.com/attachments/798309937607606302/976130542661685278/original.gif>
 
 ## For Daddys
 - https://www.paypal.me/-
