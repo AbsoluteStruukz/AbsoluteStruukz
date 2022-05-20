@@ -16,15 +16,15 @@
 </details>
 <details style='text-align: center;' align='center'>
   <summary> Things that I like </summary>
-  <p style="text-align: center;"align="center"><strong>➤ Your mom</strong></p>
+  <p style="text-align: center;"align="center"><strong>➤ Your mom's thighs</strong></p>
   <p style="text-align: center;"align="center">═════════════════════════════════════════════════════════════</p>
 </details>
 <details style='text-align: center;' align='center'>
   <summary> Stats </summary> 
   <p style="text-align: center;"align="center">
-  <summary> ➤ Visits </summary><img src="https://profile-counter.glitch.me/user2bad/count.svg" /></h3>
+  <img src="https://profile-counter.glitch.me/user2bad/count.svg" /></h3>
   <p style="text-align: center;"align="center">
-  <summary> ➤ ✦✍️ </summary><img src="https://github-readme-stats.vercel.app/api?username=user2bad&&show_icons=true&title_color=361796&icon_color=361796&text_color=361796&bg_color=151515" /></h3>
+<img src="https://github-readme-stats.vercel.app/api?username=user2bad&&show_icons=true&title_color=361796&icon_color=361796&text_color=361796&bg_color=151515" /></h3>
   <p style="text-align: center;"align="center">═════════════════════════════════════════════════════════════</p>
 </details>
 <p style="text-align: center;"align="center"> <img src= https://cdn.discordapp.com/attachments/798309937607606302/976130542661685278/original.gif>
