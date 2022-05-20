@@ -27,7 +27,7 @@
   <summary> ➤ ✦✍️ </summary><img src="https://github-readme-stats.vercel.app/api?username=user2bad&&show_icons=true&title_color=4e0a91&icon_color=4e0a91&text_color=ff0000&bg_color=151515" /></h3>
   <p style="text-align: center;"align="center">═════════════════════════════════════════════════════════════</p>
 </details>
-<p style="text-align: center;"align="center"> <img src= https://media2.giphy.com/media/xUPGcrEwuDJmKeDZK0/giphy.gif>
+<p style="text-align: center;"align="center"> <img src= [https://media2.giphy.com/media/xUPGcrEwuDJmKeDZK0/giphy.gif](https://c.tenor.com/fJWeP_yZ7cQAAAAC/aesthetic-grunge.gif)>
 
 ## For Daddys
 - https://www.paypal.me/-
