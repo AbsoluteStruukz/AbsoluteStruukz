@@ -6,12 +6,12 @@
 
 <br>
   <p style="text-align: center;"align="center">═══════════════════════How to reach me═══════════════════════</p>
-  <p style="text-align: center;"align="center"><a href="https://discord.com/invite/termsofservice"><code><img alt="DMDGO's Server" height="20" src="https://img.icons8.com/external-tal-revivo-filled-tal-revivo/2x/external-discord-chat-for-social-gaming-between-peers-logo-filled-tal-revivo.png"></code></a> <a href="https://www.instagram.com/user2bad/"><code><img alt="Ratsuyo's Instagram" height="20" src="https://www.instagram.com/static/images/ico/favicon-192.png/68d99ba29cc8.png"></code></a><code><img></code></a> <a href="https://t.me/cordcriminal"><code><img alt="Ratsuyo's Telegram" height="20" src="https://telegram.org/img/website_icon.svg"></code></a></p>
+  <p style="text-align: center;"align="center"><a href="https://discord.com/invite/termsofservice"><code><img alt="DMDGO's Server" height="20" src="https://img.icons8.com/external-tal-revivo-filled-tal-revivo/2x/external-discord-chat-for-social-gaming-between-peers-logo-filled-tal-revivo.png"></code></a> <a href="https://www.instagram.com/user2bad/"><code><img alt="Ratsuyo's Instagram" height="20" src="https://www.instagram.com/static/images/ico/favicon-192.png/68d99ba29cc8.png"></code></a><code><img></code></a> <a href="https://t.me/phonelocked"><code><img alt="Ratsuyo's Telegram" height="20" src="https://telegram.org/img/website_icon.svg"></code></a></p>
   <details style='text-align: center;' align='center'>
   <summary> More: </summary>
   <p style="text-align: center;"align="center">➤ <a href="https://discord.com/users/942531932363817041/">Main Cord: Ratsuyo0001</a></p>
   <p style="text-align: center;"align="center">➤ <a href="https://discord.com/users/974552481759629343/">Alt/Contact Cord: Ratsuyo0002</a></p>
-  <p style="text-align: center;"align="center">➤ <a href="https://solo.to/soreness">+ Socials</a></p>
+  <p style="text-align: center;"align="center">➤ <a href="https://clippy.link/sex">+ Socials</a></p>
   <p style="text-align: center;"align="center">═════════════════════════════════════════════════════════════</p>
 </details>
 <details style='text-align: center;' align='center'>
@@ -24,7 +24,7 @@
   <p style="text-align: center;"align="center">
   <img src="https://profile-counter.glitch.me/user2bad/count.svg" /></h3>
   <p style="text-align: center;"align="center">
-<img src="https://github-readme-stats.vercel.app/api?username=user2bad&&show_icons=true&title_color=361796&icon_color=361796&text_color=361796&bg_color=151515" /></h3>
+<img src="https://github-readme-stats.vercel.app/api?username=byaki&&show_icons=true&title_color=361796&icon_color=361796&text_color=361796&bg_color=151515" /></h3>
   <p style="text-align: center;"align="center">═════════════════════════════════════════════════════════════</p>
 </details>
 <p style="text-align: center;"align="center"> <img src= https://cdn.discordapp.com/attachments/798309937607606302/976130542661685278/original.gif>
