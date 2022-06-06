@@ -9,8 +9,8 @@
   <p style="text-align: center;"align="center"><a href="https://discord.com/invite/termsofservice"><code><img alt="DMDGO's Server" height="20" src="https://img.icons8.com/external-tal-revivo-filled-tal-revivo/2x/external-discord-chat-for-social-gaming-between-peers-logo-filled-tal-revivo.png"></code></a> <a href="https://www.instagram.com/user2bad/"><code><img alt="Ratsuyo's Instagram" height="20" src="https://www.instagram.com/static/images/ico/favicon-192.png/68d99ba29cc8.png"></code></a><code><img></code></a> <a href="https://t.me/phonelocked"><code><img alt="Ratsuyo's Telegram" height="20" src="https://telegram.org/img/website_icon.svg"></code></a></p>
   <details style='text-align: center;' align='center'>
   <summary> More: </summary>
-  <p style="text-align: center;"align="center">➤ <a href="https://discord.com/users/942531932363817041/">Main Cord: Ratsuyo0001</a></p>
-  <p style="text-align: center;"align="center">➤ <a href="https://discord.com/users/974552481759629343/">Alt/Contact Cord: Ratsuyo0002</a></p>
+  <p style="text-align: center;"align="center">➤ <a href="https://discord.com/users/942531932363817041/">Main Cord: few#0002</a></p>
+  <p style="text-align: center;"align="center">➤ <a href="https://discord.com/users/974552481759629343/">Alt/Contact Cord: Ripped#0001</a></p>
   <p style="text-align: center;"align="center">➤ <a href="https://clippy.link/sex">+ Socials</a></p>
   <p style="text-align: center;"align="center">═════════════════════════════════════════════════════════════</p>
 </details>
