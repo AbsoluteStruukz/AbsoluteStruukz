@@ -27,7 +27,7 @@
 <img src="https://github-readme-stats.vercel.app/api?username=byaki&&show_icons=true&title_color=361796&icon_color=361796&text_color=361796&bg_color=151515" /></h3>
   <p style="text-align: center;"align="center">═════════════════════════════════════════════════════════════</p>
 </details>
-<p style="text-align: center;"align="center"> <img src= https://cdn.discordapp.com/attachments/798309937607606302/976130542661685278/original.gif>
+<p style="text-align: center;"align="center"> <img src= https://cdn.discordapp.com/attachments/982710645382332497/983394315881553940/ripppppped.gif>
 
 ## For Daddys
 - https://www.paypal.me/-
