@@ -1,12 +1,12 @@
 ### 🍧♥𝒶𝓈𝑒𝒽𝓉𝑒𝓉𝒾𝒸𝓈.𝓍𝑜𝓍𝑜♥🍧
 
-![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
+![](https://komarev.com/ghpvc/?username=GotRipped&color=blueviolet)
 <br>
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-4/942531932363817041.png)](https://discord.com)
 
 <br>
   <p style="text-align: center;"align="center">═══════════════════════How to reach me═══════════════════════</p>
-  <p style="text-align: center;"align="center"><a href="https://discord.com/invite/termsofservice"><code><img alt="DMDGO's Server" height="20" src="https://img.icons8.com/external-tal-revivo-filled-tal-revivo/2x/external-discord-chat-for-social-gaming-between-peers-logo-filled-tal-revivo.png"></code></a> <a href="https://www.instagram.com/lives2death/"><code><img alt="Few's Instagram" height="20" src="https://www.instagram.com/static/images/ico/favicon-192.png/68d99ba29cc8.png"></code></a> <a href="https://t.me/phonelocked"><code><img alt="Few's Telegram" height="20" src="https://telegram.org/img/website_icon.svg"></code></a></p>
+  <p style="text-align: center;"align="center"><a href="https://discord.com/invite/termsofservice"><code><img alt="DMDGO's Server" height="20" src="https://img.icons8.com/external-tal-revivo-filled-tal-revivo/2x/external-discord-chat-for-social-gaming-between-peers-logo-filled-tal-revivo.png"></code></a> <a href="https://www.instagram.com/lives2death/"><code><img alt="Skiout's Instagram" height="20" src="https://www.instagram.com/static/images/ico/favicon-192.png/68d99ba29cc8.png"></code></a> <a href="https://t.me/phonelocked"><code><img alt="Skiout's Telegram" height="20" src="https://telegram.org/img/website_icon.svg"></code></a></p>
   <details style='text-align: center;' align='center'>
   <summary> More: </summary>
   <p style="text-align: center;"align="center">➤ <a href="https://discord.com/users/942531932363817041/">Main Cord: few#0002</a></p>
