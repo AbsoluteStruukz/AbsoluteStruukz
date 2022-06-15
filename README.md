@@ -7,7 +7,10 @@
   <img alt="Total Stars" src="https://img.shields.io/github/stars/GotRipped?style=for-the-badge&logo=Streamlit&color=red">
 </p>
 
-
+> **Warning**
+> This user is a registered sex offender
+> > **Alert**
+> This user needs to learn the following: *How to* ```pip install some bitches```
 ```md
 .▄▄ · ▄ •▄ ▪        ▄• ▄▌▄▄▄▄▄    | GotRipped@github
 ▐█ ▀. █▌▄▌▪██ ▪     █▪██▌•██      | ------------
