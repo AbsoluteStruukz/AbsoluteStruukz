@@ -1,37 +1,27 @@
-### 🍧♥𝒶𝓈𝑒𝒽𝓉𝑒𝓉𝒾𝒸𝓈.𝓍𝑜𝓍𝑜♥🍧
-
-![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
+![](https://komarev.com/ghpvc/?username=Ratsuyo&color=red)
 <br>
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-4/942531932363817041.png)](https://discord.com)
 
-<br>
-  <p style="text-align: center;"align="center">═══════════════════════How to reach me═══════════════════════</p>
-  <p style="text-align: center;"align="center"><a href="https://discord.com/invite/termsofservice"><code><img alt="DMDGO's Server" height="20" src="https://img.icons8.com/external-tal-revivo-filled-tal-revivo/2x/external-discord-chat-for-social-gaming-between-peers-logo-filled-tal-revivo.png"></code></a> <a href="https://www.instagram.com/lives2death/"><code><img alt="Skiout's Instagram" height="20" src="https://www.instagram.com/static/images/ico/favicon-192.png/68d99ba29cc8.png"></code></a> <a href="https://t.me/phonelocked"><code><img alt="Skiout's Telegram" height="20" src="https://telegram.org/img/website_icon.svg"></code></a></p>
-  <details style='text-align: center;' align='center'>
-  <summary> More: </summary>
-  <p style="text-align: center;"align="center">➤ <a href="https://discord.com/users/942531932363817041/">Main Cord: Ich D-Skid#6969</a></p>
-  <p style="text-align: center;"align="center">➤ <a href="https://discord.com/users/974552481759629343/">Alt/Contact Cord: Ripped#0001</a></p>
-  <p style="text-align: center;"align="center">➤ <a href="https://clippy.link/sex">+ Socials</a></p>
-  <p style="text-align: center;"align="center">═════════════════════════════════════════════════════════════</p>
-</details>
-<details style='text-align: center;' align='center'>
-  <summary> Things that I like </summary>
-  <p style="text-align: center;"align="center"><strong>➤ Your mom's thighs</strong></p>
-  <p style="text-align: center;"align="center">═════════════════════════════════════════════════════════════</p>
-</details>
-<details style='text-align: center;' align='center'>
-  <summary> Stats </summary> 
-  <p style="text-align: center;"align="center">
-  <img src="https://profile-counter.glitch.me/GotRipped/count.svg" /></h3>
-  <p style="text-align: center;"align="center">
-<img src="https://github-readme-stats.vercel.app/api?username=GotRipped&&show_icons=true&title_color=361796&icon_color=361796&text_color=361796&bg_color=151515" /></h3>
-  <p style="text-align: center;"align="center">═════════════════════════════════════════════════════════════</p>
-</details>
-<p style="text-align: center;"align="center"> <img src= https://cdn.discordapp.com/attachments/982710645382332497/983394315881553940/ripppppped.gif>
+<p align="left">
+  <img alt="Followers" src="https://img.shields.io/github/followers/GotRipped?style=for-the-badge&logo=stylelint&color=red">
+  <img alt="Total Stars" src="https://img.shields.io/github/stars/GotRipped?style=for-the-badge&logo=Streamlit&color=red">
+</p>
 
-## For Daddys
-- https://www.paypal.me/Zeus812022
-- BTC(Bitcoin): `bc1qhqmk0qmsqr3y77rea9w92d896m5mx3r3tm5kwh`
-- ETH(Etherum): `0x5d0FB6C61C99e8B59c15D1Fde3bb80912A47B30E`
-- SOL(Solana): `6Jud6ydRtR4FZ1iLXfeuEotbwCc1euiya8QvGZ6c5g7b`
-- LTC(Litecoin): `LMHbc9XF5Hj73ZGx9UU4abMfEKKRnHYUTJ`
+
+```md
+.▄▄ · ▄ •▄ ▪        ▄• ▄▌▄▄▄▄▄    | GotRipped@github
+▐█ ▀. █▌▄▌▪██ ▪     █▪██▌•██      | ------------
+▄▀▀▀█▄▐▀▀▄·▐█· ▄█▀▄ █▌▐█▌ ▐█.▪    | 📧・skiout@wants-to-die.xyz
+▐█▄▪▐█▐█.█▌▐█▌▐█▌.▐▌▐█▄█▌ ▐█▌·    | 📝・15 y/o
+ ▀▀▀▀ ·▀  ▀▀▀▀ ▀█▄▀▪ ▀▀▀  ▀▀▀
+
+├── Language
+│   ├── .Py
+│   ├── .Js
+|   ├── .Go
+|
+└── <3 from Vichy
+```
+<p style="text-align: left;"align="left"> <img src= https://cdn.discordapp.com/attachments/982710645382332497/983394315881553940/ripppppped.gif>
+<br>
+  <p style="text-align: left;"align="center"><a href="https://discord.com/invite/termsofservice"><code><img alt="DMDGO's Server" height="20" src="https://cliply.co/wp-content/uploads/2021/08/372108630_DISCORD_LOGO_400.gif"></code></a> <a href="https://www.instagram.com/lives2death/"><code><img alt="Skiout's Instagram" height="20" src="https://media3.giphy.com/media/IbTZSfHDUDSmOCkd3q/giphy.gif"></code></a> <a href="https://discord.gg/vcc"><code><img alt="Crime's Server" height="20" src="https://cdn.discordapp.com/emojis/974713669462138940.gif?size=96&quality=lossless"></code></a> <a href="https://t.me/phonelocked"><code><img alt="Skiout's Telegram" height="20" src="https://c.tenor.com/QPDizCpJetAAAAAj/%D1%82%D0%B5%D0%BB%D0%B5%D0%B3%D1%80%D0%B0%D0%BC-%D1%81%D0%BE%D0%BE%D0%B1%D1%89%D0%B5%D0%BD%D0%B8%D0%B5.gif"></code></a></p> 
