@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=4000&color=F70000&background=FFFFFF00&lines=Skiout)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=4000&color=F70000&lines=Bryon)](https://git.io/typing-svg)
 
 ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=red)
 <br>
