@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=red)
 <br>
-[![DiscordProfileBanner](https://discord.c99.nl/widget/theme-4/942531932363817041.png)](https://discord.com)
+[![DiscordProfileBanner](https://discord.c99.nl/widget/theme-1/988831661724692521.png)](https://discord.com)
 
 <p align="left">
   <img alt="Followers" src="https://img.shields.io/github/followers/clownist?style=for-the-badge&logo=stylelint&color=red">
