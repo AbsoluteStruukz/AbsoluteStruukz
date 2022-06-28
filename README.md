@@ -19,7 +19,7 @@
  ▄▄ • ▪   ▐ ▄  ▄▄ • ▄▄▄ ..▄▄ · ▄▄▄▄▄     | clownist@github
 ▐█ ▀ ▪██ •█▌▐█▐█ ▀ ▪▀▄.▀·▐█ ▀. •██       | ------------
 ▄█ ▀█▄▐█·▐█▐▐▌▄█ ▀█▄▐▀▀▪▄▄▀▀▀█▄ ▐█.▪     | 📧Gingest@wants-to-die.xyz
-▐█▄▪▐█▐█▌██▐█▌▐█▄▪▐█▐█▄▄▌▐█▄▪▐█ ▐█▌·     | 📝・15 y/o
+▐█▄▪▐█▐█▌██▐█▌▐█▄▪▐█▐█▄▄▌▐█▄▪▐█ ▐█▌·     | 📝・5teen
 ·▀▀▀▀ ▀▀▀▀▀ █▪·▀▀▀▀  ▀▀▀  ▀▀▀▀  ▀▀▀      | ✅・Cum.in(Stealthy = Mommy , Shaj = Daddy , Dreamy = sexy , Hunolog = pro haxor + pls no mad anymore at me UwU , ui = my sex slave , Rayan = stepdaddy , Gulab = stepmommy , Fabio = Sexy + Hot , Merkz = my AHDH negrou , TrixTM = blacc , itroublve = troublebouble , blaststar/tech_support = my idol UwU , ichhacke = unjailed🥳) 
 
 ├── Language
