@@ -7,8 +7,8 @@
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-1/988831661724692521.png)](https://discord.com)
 
 <p align="left">
-  <img alt="Followers" src="https://img.shields.io/github/followers/clownist?style=for-the-badge&logo=stylelint&color=blueviolet">
-  <img alt="Total Stars" src="https://img.shields.io/github/stars/clownist?style=for-the-badge&logo=Streamlit&color=blueviolet">
+  <img alt="Followers" src="https://img.shields.io/github/followers/bankcards?style=for-the-badge&logo=stylelint&color=blueviolet">
+  <img alt="Total Stars" src="https://img.shields.io/github/stars/bankcards?style=for-the-badge&logo=Streamlit&color=blueviolet">
 </p>
 
 > **Warning**
