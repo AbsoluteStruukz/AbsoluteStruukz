@@ -1,6 +1,6 @@
 <img src="https://camo.githubusercontent.com/4392fe8414e46118eb6ddcc972e6833793a515172c21bcdca955de17a1170855/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f3831333334313636323534353331333833322f3831333334333430343530373236373039322f706f6b656d6f6e5f706978656c2e676966"></code></a>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Rs)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=weebstar)](https://git.io/typing-svg)
 
 ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
 <br>
@@ -18,7 +18,7 @@
 ```md
  ▄▄ • ▪   ▐ ▄  ▄▄ • ▄▄▄ ..▄▄ · ▄▄▄▄▄     | lemmebe@github
 ▐█ ▀ ▪██ •█▌▐█▐█ ▀ ▪▀▄.▀·▐█ ▀. •██       | ------------
-▄█ ▀█▄▐█·▐█▐▐▌▄█ ▀█▄▐▀▀▪▄▄▀▀▀█▄ ▐█.▪     | 📧Gingest@wants-to-die.xyz
+▄█ ▀█▄▐█·▐█▐▐▌▄█ ▀█▄▐▀▀▪▄▄▀▀▀█▄ ▐█.▪     | 📧・weebstar@cum.auction
 ▐█▄▪▐█▐█▌██▐█▌▐█▄▪▐█▐█▄▄▌▐█▄▪▐█ ▐█▌·     | 📝・5teen
 ·▀▀▀▀ ▀▀▀▀▀ █▪·▀▀▀▀  ▀▀▀  ▀▀▀▀  ▀▀▀      | ✅・Cum.in(Stealthy = Mommy , Shaj = Daddy , Dreamy = sexy , Hunolog = pro haxor + pls no mad anymore at me UwU , ui = my sex slave , Rayan = stepdaddy , Gulab = stepmommy , Fabio = Sexy + Hot , Merkz = my AHDH negrou , TrixTM = blacc , itroublve = troublebouble , blaststar/tech_support = my idol UwU , ichhacke = unjailed🥳) 
 
