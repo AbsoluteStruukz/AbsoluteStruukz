@@ -16,11 +16,12 @@
 > > **Alert**
 > This user needs to learn the following: *How to* ```pip install some bitches```
 ```md
- ▄▄ • ▪   ▐ ▄  ▄▄ • ▄▄▄ ..▄▄ · ▄▄▄▄▄     | lemmebe@github
-▐█ ▀ ▪██ •█▌▐█▐█ ▀ ▪▀▄.▀·▐█ ▀. •██       | ------------
-▄█ ▀█▄▐█·▐█▐▐▌▄█ ▀█▄▐▀▀▪▄▄▀▀▀█▄ ▐█.▪     | 📧・weebstar@cum.auction
-▐█▄▪▐█▐█▌██▐█▌▐█▄▪▐█▐█▄▄▌▐█▄▪▐█ ▐█▌·     | 📝・5teen
-·▀▀▀▀ ▀▀▀▀▀ █▪·▀▀▀▀  ▀▀▀  ▀▀▀▀  ▀▀▀      | ✅・Cum.in(Stealthy = Mommy , Shaj = Daddy , Dreamy = sexy , Hunolog = pro haxor + pls no mad anymore at me UwU , ui = my sex slave , Rayan = stepdaddy , Gulab = stepmommy , Fabio = Sexy + Hot , Merkz = my AHDH negrou , TrixTM = blacc , itroublve = troublebouble , blaststar/tech_support = my idol UwU , ichhacke = unjailed🥳) 
+    █████████          | lemmebe@github
+   ▄█▌─▄─▄─▐█▄         | ------------
+   ██▌▀▀▄▀▀▐██         | ✈️・t.me/lemmekms
+   ██▌─▄▄▄─▐██         | 📧・weebstar@cum.auction
+   ▀██▌▐█▌▐██▀         | 📝・5teen
+▄██████─▀─██████▄      | ✅・Cum.in(Stealthy = Mommy , Shaj = Daddy , Dreamy = sexy , Hunolog = pro haxor + pls no mad anymore at me UwU , ui = my sex slave , Rayan = stepdaddy , Gulab = stepmommy , Fabio = Sexy + Hot , Merkz = my AHDH negrou , TrixTM = blacc , itroublve = troublebouble , blaststar/tech_support = my idol UwU , ichhacke = unjailed🥳)
 
 ├── Language
 │   ├── .Py
