@@ -16,7 +16,7 @@
 > > **Alert**
 > This user needs to learn the following: *How to* ```pip install some bitches```
 ```md
-    █████████          | lemmebe@github
+    █████████          | AbsoluteStruukz@github
    ▄█▌─▄─▄─▐█▄         | ------------
    ██▌▀▀▄▀▀▐██         | ✈️・t.me/lemmekms
    ██▌─▄▄▄─▐██         | 📧・struukz@lives-in-the.cloud
