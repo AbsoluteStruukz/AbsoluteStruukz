@@ -1,4 +1,4 @@
-<img src="https://camo.githubusercontent.com/4392fe8414e46118eb6ddcc972e6833793a515172c21bcdca955de17a1170855/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f3831333334313636323534353331333833322f3831333334333430343530373236373039322f706f6b656d6f6e5f706978656c2e676966"></code></a>
+<img src="https://cdn.discordapp.com/attachments/988834344330227732/994998341643534346/horneyhoe.gif"></code></a>
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Struukz)](https://git.io/typing-svg)
 
