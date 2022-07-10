@@ -1,4 +1,4 @@
-<img src="https://cdn.discordapp.com/attachments/988890550704959528/995823463954653265/NINDEDOGO.jpg"></code></a>
+<img src="https://cdn.discordapp.com/attachments/988890550704959528/995827962404413460/NINDEDOGO.png"></code></a>
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Hazy)](https://git.io/typing-svg)
 
