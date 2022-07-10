@@ -21,7 +21,7 @@
    ██▌▀▀▄▀▀▐██         | ✈️・t.me/lemmekms
    ██▌─▄▄▄─▐██         | 📧・3v
    ▀██▌▐█▌▐██▀         | 📝・5teen
-▄██████─▀─██████▄      | ✅・Cum.in(Stealthy = Mommy , Shaj = Daddy , Siegfried = Granny , Dreamy = sexy , Hunolog = pro haxor + pls no mad anymore at me UwU , ui = my sex slave , Rayan = stepdaddy , Gulab = stepmommy , Fabio = Sexy + Hot , Merkz = my AHDH negrou , TrixTM = blacc , itroublve = troublebouble , blaststar/tech_support = my idol UwU , ichhacke = unjailed🥳)
+▄██████─▀─██████▄      | ✅・Cum.in(Stealthy = Mommy , Shaj = Daddy , Siegfried = Granny , Dreamy = sexy , Hunolog = pro haxor + pls no mad anymore at me UwU , ui = my sex slave , Rayan = stepdaddy , Gulab = stepmommy , Fabio = Sexy + Hot , Merkz = my AHDH negrou , TrixTM = blacc , itroublve = troublebouble , blaststar/tech_support = my idol UwU , tos nigger = my son (me proud) , ichhacke = unjailed🥳)
 
 ├── Language
 │   ├── .Py
