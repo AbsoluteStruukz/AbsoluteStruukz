@@ -1,6 +1,6 @@
 <img src="https://cdn.discordapp.com/attachments/988890550704959528/995827962404413460/NINDEDOGO.png"></code></a>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Hazy)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Karma)](https://git.io/typing-svg)
 
 ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
 <br>
