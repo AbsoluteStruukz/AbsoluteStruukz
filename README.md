@@ -1,4 +1,4 @@
-<img src="https://cdn.discordapp.com/attachments/972533899462836334/983910982562746398/original.gif"></code></a>
+<img src="https://cdn.discordapp.com/attachments/975136008075092058/980866340363587634/IMG_2053.jpg"></code></a>
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Karma)](https://git.io/typing-svg)
 
