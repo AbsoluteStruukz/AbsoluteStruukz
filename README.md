@@ -1,4 +1,6 @@
 <img src="https://cdn.discordapp.com/attachments/994565489357508698/998552952082022410/headerpurple.png"></code></a>
+<img src="https://i.stack.imgur.com/UXMG7.gif"></code></a>
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Karma)](https://git.io/typing-svg)
 
 ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
