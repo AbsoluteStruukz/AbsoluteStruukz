@@ -14,7 +14,7 @@
 > **Warning**
 > This user is a registered sex offender
 > > **Alert**
-> ```Bich count```: **0**, ```Whores mad```: **5**
+> ```This user has 0 bitches.
 ```md
                      | whoresmad@github
 ╦╔═╔═╗╦═╗╔╦╗╔═╗      | ────────────────
