@@ -14,12 +14,12 @@
 > **Warning**
 > This user is a registered sex offender
 > > **Alert**
-> ```This user has 0 bitches.
+> ```This user has 0 bitches```
 ```md
                      | whoresmad@github
 ╦╔═╔═╗╦═╗╔╦╗╔═╗      | ────────────────
 ╠╩╗╠═╣╠╦╝║║║╠═╣      | ✈️・t.me/riphoes
-╩ ╩╩ ╩╩╚═╩ ╩╩ ╩      | ✅・Cum.in(Stealthy = Mommy , Shaj = Daddy , Siegfried = Granny , Dreamy = sexy , Hunolog = pro haxor + pls no mad anymore at me UwU , ui = my sex slave , Rayan = stepdaddy , Gulab = stepmommy , Fabio = Sexy + Hot , Merkz = my AHDH negrou , TrixTM = blacc , itroublve = troublebouble , Trippy = my daddy , blaststar/tech_support = my idol UwU , tos nigger = my son (me proud) , ichhacke = unjailed🥳)
+╩ ╩╩ ╩╩╚═╩ ╩╩ ╩      | ✅・Cum.in(Stealthy = Mommy , Shaj = Daddy , Siegfried = Granny , Dreamy = sexy , Hunolog = pro haxor + pls no mad anymore at me UwU , ui = my sex slave , Rayan = stepdaddy , Gulab = stepmommy , Fabio = Sexy + Hot , Merkz = my AHDH negrou , x3 = quotable , TrixTM = blacc , itroublve = troublebouble , Trippy = my daddy , blaststar/tech_support = my idol UwU , tos nigger = my son (me proud) , ichhacke = unjailed🥳)
 
 
 ├── Language
