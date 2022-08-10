@@ -12,9 +12,9 @@
 </p>
 
 > **Warning**
-> This user is a registered sex offender
+> This user is a registered sex offender.
 > > **Alert**
-> ```This user has 0 bitches```
+> ```This user hates golang imports!```
 ```md
                      | boobbs@github
 ╦╔═╔═╗╦═╗╔╦╗╔═╗      | ────────────────
