@@ -33,4 +33,4 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=2100&color=F7C433&lines=Have+something+to+say%3F;Without..;genuine+legally+accepted+proof%3F;Talk+to+my+dick.)](https://git.io/typing-svg)
 
 - [⤹ Socials](https://clippy.link/sex)
-- [Cookie ⤾](https://discord.gg/horney)
+- [Cookies ⤾](https://discord.gg/horney)
