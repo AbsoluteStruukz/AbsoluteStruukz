@@ -2,14 +2,9 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Karma)](https://git.io/typing-svg)
 
-![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
-<br>
-[![DiscordProfileBanner](https://discord.c99.nl/widget/theme-3/1003739226870906981.png)](https://discord.com)
+<img alt="Total Stars" src="https://img.shields.io/github/stars/boobbs?style=for-the-badge&logo=Streamlit&color=blueviolet"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
 
-<p align="left">
-  <img alt="Followers" src="https://img.shields.io/github/followers/boobbs?style=for-the-badge&logo=stylelint&color=blueviolet">
-  <img alt="Total Stars" src="https://img.shields.io/github/stars/boobbs?style=for-the-badge&logo=Streamlit&color=blueviolet">
-</p>
+[![DiscordProfileBanner](https://discord.c99.nl/widget/theme-3/1003739226870906981.png)](https://discord.com)
 
 > **Warning**
 > This user is a registered sex offender.
