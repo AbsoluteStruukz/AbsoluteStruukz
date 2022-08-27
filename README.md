@@ -1,3 +1,4 @@
+<a href='https://github.com/underagent'>
 <img src="https://cdn.discordapp.com/attachments/1004047554960429187/1011604260707905556/py_anime.png"></code></a>
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Karma)](https://git.io/typing-svg)
@@ -30,4 +31,5 @@
 - [⤹ Socials](https://clippy.link/sex)
 - [Cookies ⤾](https://discord.gg/horney)
 
+  <a href='https://github.com/underagent'>
 <img src="https://cdn.discordapp.com/attachments/824105295121743872/1009108413130743888/IMG_6859.jpg"></code></a>
