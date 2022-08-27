@@ -3,7 +3,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Karma)](https://git.io/typing-svg)
 
-<img alt="Total Stars" src="https://img.shields.io/github/stars/underagent?style=for-the-badge&logo=Streamlit&color=blueviolet"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
+ <a href="https://discord.gg/horney" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/underagent?style=for-the-badge&logo=Streamlit&color=blueviolet"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
 
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-3/1003739226870906981.png)](https://discord.com)
 
