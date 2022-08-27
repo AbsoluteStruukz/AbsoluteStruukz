@@ -2,7 +2,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Karma)](https://git.io/typing-svg)
 
-<img alt="Total Stars" src="https://img.shields.io/github/stars/boobbs?style=for-the-badge&logo=Streamlit&color=blueviolet"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
+<img alt="Total Stars" src="https://img.shields.io/github/stars/underagent?style=for-the-badge&logo=Streamlit&color=blueviolet"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
 
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-3/1003739226870906981.png)](https://discord.com)
 
