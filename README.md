@@ -11,7 +11,7 @@
 > > **Alert**
 > ```This user hates golang imports!```
 ```md
-                     | boobbs@github
+                     | b̶o̶o̶b̶b̶s̶@̶g̶i̶t̶h̶u̶b̶  𝘂𝗻𝗱𝗲𝗿𝗮𝗴𝗲𝗻𝘁@𝗴𝗶𝘁𝗵𝘂𝗯✅
 ╦╔═╔═╗╦═╗╔╦╗╔═╗      | ────────────────
 ╠╩╗╠═╣╠╦╝║║║╠═╣      | ✈️・t.me/boobjob
 ╩ ╩╩ ╩╩╚═╩ ╩╩ ╩      | ✅・Cum.in(Stealthy = Mommy , Shaj = Daddy , Siegfried = Granny , Red. = ultra sex , randomizd = smashable and fuckable UwU , Dreamy = sexy , Hunolog = pro haxor + pls no mad anymore at me UwU , ui = my sex slave , Rayan = stepdaddy , Gulab = stepmommy , Fabio = Sexy + Hot , Merkz = my AHDH negrou , x3 = quotable , TrixTM = blacc , Aniell4 = cute , itroublve = troublebouble , Trippy = my daddy , blaststar/tech_support = my idol UwU , tos nigger = my son (me proud) , bytixo = oh , ichhacke = unjailed🥳)
