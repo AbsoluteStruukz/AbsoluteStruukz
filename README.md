@@ -29,7 +29,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=2100&color=F7C433&lines=Have+something+to+say%3F;Without..;genuine+legally+accepted+proof%3F;Talk+to+my+dick.)](https://git.io/typing-svg)
 
 - [⤹ Socials](https://clippy.link/sex)
-- [Cookies ⤾](https://discord.gg/horney)
+- [Cookies ⤾](https://discord.gg/feared)
 
   <a href='https://github.com/underagent'>
 <img src="https://cdn.discordapp.com/attachments/824105295121743872/1009108413130743888/IMG_6859.jpg"></code></a>
