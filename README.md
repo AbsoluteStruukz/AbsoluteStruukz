@@ -29,7 +29,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=2100&color=F7C433&lines=Have+something+to+say%3F;Without..;genuine+legally+accepted+proof%3F;Talk+to+my+dick.)](https://git.io/typing-svg)
 
 - [⤹ Socials](https://clippy.link/sex)
-- [Cookies ⤾](https://discord.gg/feared)
+- [Cookies ⤾](https://discord.gg/termsofservice)
 
   <a href='https://github.com/RemoteTool'>
 <img align="center" width="200%" src="https://cdn.discordapp.com/attachments/932637063252164668/992722056875610193/ACEBAD39-77DD-410F-B039-8893F740B9D0.jpg">
