@@ -32,4 +32,4 @@
 - [Cookies ⤾](https://discord.gg/feared)
 
   <a href='https://github.com/RemoteTool'>
-<img src="https://cdn.discordapp.com/attachments/824105295121743872/1009108413130743888/IMG_6859.jpg"></code></a>
+<img align="center" width="200%" src="https://cdn.discordapp.com/attachments/932637063252164668/992722056875610193/ACEBAD39-77DD-410F-B039-8893F740B9D0.jpg">
