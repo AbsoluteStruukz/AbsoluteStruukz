@@ -32,4 +32,4 @@
 - [Cookies ⤾](https://discord.gg/termsofservice)
 
   <a href='https://github.com/RemoteTool'>
-<img align="center" width="200%" src="https://cdn.discordapp.com/attachments/932637063252164668/992722056875610193/ACEBAD39-77DD-410F-B039-8893F740B9D0.jpg">
+<img align="center" width="100%" src="https://cdn.discordapp.com/attachments/1003757499406618676/1021122693703143444/IMG_4376_1.png">
