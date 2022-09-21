@@ -3,7 +3,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Karma)](https://git.io/typing-svg)
 
- <a href="https://discord.gg/feared" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/RemoteTool?style=for-the-badge&logo=Streamlit&color=blueviolet"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
+ <a href="https://discord.gg/skids" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/RemoteTool?style=for-the-badge&logo=Streamlit&color=blueviolet"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
 
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-3/1003739226870906981.png)](https://discord.com)
 
@@ -29,7 +29,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=2100&color=F7C433&lines=Have+something+to+say%3F;Without..;genuine+legally+accepted+proof%3F;Talk+to+my+dick.)](https://git.io/typing-svg)
 
 - [⤹ Socials](https://clippy.link/sex)
-- [Cookies ⤾](https://discord.gg/termsofservice)
+- [DmdGO ⤾](https://discord.gg/termsofservice)
 
   <a href='https://github.com/RemoteTool'>
 <img align="center" width="100%" src="https://cdn.discordapp.com/attachments/1003757499406618676/1021122693703143444/IMG_4376_1.png">
