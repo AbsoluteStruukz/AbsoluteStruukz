@@ -1,7 +1,7 @@
 <a href='https://github.com/RemoteTool'>
 <img src="https://cdn.discordapp.com/attachments/1004047554960429187/1011604260707905556/py_anime.png"></code></a>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=Karma)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=beam)](https://git.io/typing-svg)
 
  <a href="https://discord.gg/xsmXuf2YJ5" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/RemoteTool?style=for-the-badge&logo=Streamlit&color=blueviolet"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
 
