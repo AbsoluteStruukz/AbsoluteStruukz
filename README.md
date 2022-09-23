@@ -30,8 +30,6 @@
 ╠╩╗║╣ ╠═╣║║║      | ϟ・t.me/boobjob
 ╚═╝╚═╝╩ ╩╩ ╩      | ϟ・Known as Karma/Hadez/lex(y)
 
-#✅・Cum.in(Stealthy = Mommy , Shaj = Daddy , Siegfried = Granny , Red. = ultra sex , randomizd = smashable and fuckable UwU , Dreamy = sexy , Hunolog = pro haxor + pls no mad anymore at me UwU , ui = my sex slave , Rayan = stepdaddy , Gulab = stepmommy , Fabio = Sexy + Hot , Merkz = my AHDH negrou , x3 = quotable , TrixTM = blacc , Aniell4 = cute , itroublve = troublebouble , Trippy = my daddy , blaststar/tech_support = my idol UwU , tos nigger = my son (me proud) , bytixo = oh , jose = 2good, ichhacke = unjailed🥳)
-
 
 ├── Language
 │   ├── .Py
