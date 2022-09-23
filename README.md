@@ -1,5 +1,5 @@
-<a href='https://github.com/b4am'>
-<img src="https://cdn.discordapp.com/attachments/1004047554960429187/1011604260707905556/py_anime.png"></code></a>
+<a href='https://discord.gg/skids | Skidclub'>
+<img src="https://cdn.discordapp.com/attachments/1017716626373750814/1022924802895388682/S.png"></code></a>
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=beam)](https://git.io/typing-svg)
 
