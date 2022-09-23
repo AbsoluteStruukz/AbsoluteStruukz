@@ -1,3 +1,16 @@
+<!--
+
+.-. .-')                            
+\  ( OO )                           
+ ;-----.\  .-'),-----.  .-'),-----. 
+ | .-.  | ( OO'  .-.  '( OO'  .-.  '
+ | '-' /_)/   |  | |  |/   |  | |  |
+ | .-. `. \_) |  |\|  |\_) |  |\|  |
+ | |  \  |  \ |  | |  |  \ |  | |  |
+ | '--'  /   `'  '-'  '   `'  '-'  '
+ `------'      `-----'      `-----' 
+-->
+----
 <a href='https://discord.gg/skids \n Skidclub'>
 <img src="https://cdn.discordapp.com/attachments/1017716626373750814/1022924802895388682/S.png" width="1000" height="450" ></code></a>
 
@@ -12,10 +25,12 @@
 > > **Alert**
 > ```This user hates golang & json files!```
 ```md
-                  | b4am@github.cum
+                  | ⛧ b4am@github.cum ⛧
 ╔╗ ╔═╗╔═╗╔╦╗      | ────────────────
-╠╩╗║╣ ╠═╣║║║      | ✈️・t.me/boobjob
-╚═╝╚═╝╩ ╩╩ ╩      | ✅・Cum.in(Stealthy = Mommy , Shaj = Daddy , Siegfried = Granny , Red. = ultra sex , randomizd = smashable and fuckable UwU , Dreamy = sexy , Hunolog = pro haxor + pls no mad anymore at me UwU , ui = my sex slave , Rayan = stepdaddy , Gulab = stepmommy , Fabio = Sexy + Hot , Merkz = my AHDH negrou , x3 = quotable , TrixTM = blacc , Aniell4 = cute , itroublve = troublebouble , Trippy = my daddy , blaststar/tech_support = my idol UwU , tos nigger = my son (me proud) , bytixo = oh , jose = 2good, ichhacke = unjailed🥳)
+╠╩╗║╣ ╠═╣║║║      | ϟ・t.me/boobjob
+╚═╝╚═╝╩ ╩╩ ╩      | ϟ・Known as Karma/Hadez/lex(y)
+
+#✅・Cum.in(Stealthy = Mommy , Shaj = Daddy , Siegfried = Granny , Red. = ultra sex , randomizd = smashable and fuckable UwU , Dreamy = sexy , Hunolog = pro haxor + pls no mad anymore at me UwU , ui = my sex slave , Rayan = stepdaddy , Gulab = stepmommy , Fabio = Sexy + Hot , Merkz = my AHDH negrou , x3 = quotable , TrixTM = blacc , Aniell4 = cute , itroublve = troublebouble , Trippy = my daddy , blaststar/tech_support = my idol UwU , tos nigger = my son (me proud) , bytixo = oh , jose = 2good, ichhacke = unjailed🥳)
 
 
 ├── Language
@@ -30,3 +45,17 @@
 
 - [⤹ Socials](https://clippy.link/sex)
 - [DmdGO ⤾](https://discord.gg/termsofservice)
+
+<!--
+
+.-. .-')                            
+\  ( OO )                           
+ ;-----.\  .-'),-----.  .-'),-----. 
+ | .-.  | ( OO'  .-.  '( OO'  .-.  '
+ | '-' /_)/   |  | |  |/   |  | |  |
+ | .-. `. \_) |  |\|  |\_) |  |\|  |
+ | |  \  |  \ |  | |  |  \ |  | |  |
+ | '--'  /   `'  '-'  '   `'  '-'  '
+ `------'      `-----'      `-----' 
+-->
+----
