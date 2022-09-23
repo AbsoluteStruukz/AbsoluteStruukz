@@ -1,16 +1,16 @@
-<a href='https://discord.gg/skids | Skidclub'>
-<img src="https://cdn.discordapp.com/attachments/1017716626373750814/1022924802895388682/S.png"></code></a>
+<a href='https://discord.gg/skids \n Skidclub'>
+<img src="https://cdn.discordapp.com/attachments/1017716626373750814/1022924802895388682/S.png" width="1000" height="450" ></code></a>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=730ACD&lines=beam)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=ffffff&lines=beam)](https://git.io/typing-svg)
 
- <a href="https://discord.gg/xsmXuf2YJ5" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/b4am?style=for-the-badge&logo=Streamlit&color=blueviolet"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
+ <a href="https://discord.gg/xsmXuf2YJ5" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/b4am?style=for-the-badge&logo=Streamlit&color=lightgrey"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=lightgrey)
 
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-3/1003739226870906981.png)](https://discord.com)
 
 > **Warning**
 > This user is a registered sex offender.
 > > **Alert**
-> ```This user hates golang imports!```
+> ```This user hates golang & json files!```
 ```md
                   | b4am@github.cum
 ╔╗ ╔═╗╔═╗╔╦╗      | ────────────────
