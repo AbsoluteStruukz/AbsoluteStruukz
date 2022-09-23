@@ -30,6 +30,3 @@
 
 - [⤹ Socials](https://clippy.link/sex)
 - [DmdGO ⤾](https://discord.gg/termsofservice)
-
-  <a href='https://github.com/b4am'>
-<img align="center" width="100%" src="https://cdn.discordapp.com/attachments/1003757499406618676/1021122693703143444/IMG_4376_1.png">
