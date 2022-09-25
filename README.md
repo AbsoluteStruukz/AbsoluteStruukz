@@ -41,7 +41,7 @@
 - [⤹ Socials](https://clippy.link/sex)
 - [DmdGO ⤾](https://discord.gg/termsofservice)
 
-<a href='https://discord.gg/skids \n Skidclub'>
+<a href='https://discord.gg/skids'>
 <img src="https://cdn.discordapp.com/attachments/1017716626373750814/1022924802895388682/S.png" width="1000" height="450" ></code></a>
 <!--
 
