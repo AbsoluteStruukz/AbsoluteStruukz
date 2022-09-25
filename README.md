@@ -39,7 +39,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=2100&color=F7C433&lines=Have+something+to+say%3F;Without..;genuine+legally+accepted+proof%3F;Talk+to+my+dick.)](https://git.io/typing-svg)
 
 - [⤹ Socials](https://clippy.link/sex)
-- [DmdGO ⤾](https://discord.gg/termsofservice)
+- [DmdGO ⤾](https://discord.gg/HCYVsYbNff)
 
 <a href='https://discord.gg/skids'>
 <img src="https://cdn.discordapp.com/attachments/1017716626373750814/1022924802895388682/S.png" width="1000" height="450" ></code></a>
