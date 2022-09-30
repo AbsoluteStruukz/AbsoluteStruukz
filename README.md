@@ -11,12 +11,12 @@
  `------'      `-----'      `-----' 
 -->
 ----
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=ffffff&lines=$leepy)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=8300b1&lines=$leepy)](https://git.io/typing-svg)
 
- <a href="https://discord.gg/xsmXuf2YJ5" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/passedout?style=for-the-badge&logo=Streamlit&color=lightgrey"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=lightgrey)
+ <a href="https://discord.gg/xsmXuf2YJ5" target="_blank"><img src="https://i.pinimg.com/564x/7c/c8/09/7cc809447d1b739d1f304901545e13d3.jpg" width="29" height="29"  target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/passedout?style=for-the-badge&logo=Streamlit&color=blueviolet"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
 
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-3/1003739226870906981.png)](https://discord.com) / <a href='https://discord.dog/1003739226870906981'>
-<img src="https://assets-global.website-files.com/6257adef93867e50d84d30e2/62594d3a27620a3b5c414341_2d20a45d79110dc5bf947137e9d99b66.svg" width="" height="" ></code></a>
+<img src="https://i.pinimg.com/564x/60/ca/3d/60ca3dc1a843a0ba2248ff89b67c5e99.jpg" width="80" height="80" ></code></a>
 
 > **Warning**
 > This user is a registered sex offender.
