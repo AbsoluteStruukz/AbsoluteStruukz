@@ -13,7 +13,7 @@
 ----
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=ffffff&lines=$leepy)](https://git.io/typing-svg)
 
- <a href="https://discord.gg/xsmXuf2YJ5" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/b4am?style=for-the-badge&logo=Streamlit&color=lightgrey"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=lightgrey)
+ <a href="https://discord.gg/xsmXuf2YJ5" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/passedout?style=for-the-badge&logo=Streamlit&color=lightgrey"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=lightgrey)
 
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-3/1003739226870906981.png)](https://discord.com)
 
