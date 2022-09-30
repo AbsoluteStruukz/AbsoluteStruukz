@@ -15,7 +15,8 @@
 
  <a href="https://discord.gg/xsmXuf2YJ5" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/passedout?style=for-the-badge&logo=Streamlit&color=lightgrey"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=lightgrey)
 
-[![DiscordProfileBanner](https://discord.c99.nl/widget/theme-3/1003739226870906981.png)](https://discord.com)
+[![DiscordProfileBanner](https://discord.c99.nl/widget/theme-3/1003739226870906981.png)](https://discord.com) / <a href='https://discord.dog/1003739226870906981'>
+<img src="https://assets-global.website-files.com/6257adef93867e50d84d30e2/62594d3a27620a3b5c414341_2d20a45d79110dc5bf947137e9d99b66.svg" width="" height="" ></code></a>
 
 > **Warning**
 > This user is a registered sex offender.
