@@ -27,7 +27,7 @@
 └┼┐  ╚═╗║  ║╣ ║╣ ╠═╝╚╦╝      | ϟ・t.me/boobjob
 └┼┘  ╚═╝╩═╝╚═╝╚═╝╩   ╩       | ϟ・Known as Karma/Hadez/lex(y)
                              | ──────────────────────────────
-                             | ⛧ passedout@github.cum ⛧
+                             | ⛧ muc.buhtig@tuodessap ⛧
 
 
 ├── Language
