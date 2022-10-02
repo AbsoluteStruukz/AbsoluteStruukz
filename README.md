@@ -13,7 +13,7 @@
 ----
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=8300b1&lines=$leepy)](https://git.io/typing-svg)
 
- <a href="https://discord.gg/xsmXuf2YJ5" target="_blank"><img src="https://i.pinimg.com/564x/7c/c8/09/7cc809447d1b739d1f304901545e13d3.jpg" width="29" height="29"  target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/passedout?style=for-the-badge&logo=Streamlit&color=blueviolet"> ![](https://komarev.com/ghpvc/?username=Ratsuyo&color=blueviolet)
+ <a href="https://discord.gg/xsmXuf2YJ5" target="_blank"><img src="https://i.pinimg.com/564x/7c/c8/09/7cc809447d1b739d1f304901545e13d3.jpg" width="29" height="29"  target="_blank"></a> <img alt="Total Stars" src="https://img.shields.io/github/stars/passedout?style=for-the-badge&logo=Streamlit&color=blueviolet"> ![](https://komarev.com/ghpvc/?username=passedout&color=blueviolet)
 
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-3/1003739226870906981.png)](https://discord.com) / <a href='https://discord.dog/1003739226870906981'>
 <img src="https://i.pinimg.com/564x/60/ca/3d/60ca3dc1a843a0ba2248ff89b67c5e99.jpg" width="80" height="80" ></code></a>
