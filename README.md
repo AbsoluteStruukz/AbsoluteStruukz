@@ -43,7 +43,7 @@
 - [⤹ Socials](https://clippy.link/sex)
 - [DmdGO ⤾](https://discord.gg/HCYVsYbNff)
 
-<a href='https://discord.gg/logger'>
+<a href='https://discord.gg/wcd8GZkVKt'>
 <img src="https://cdn.discordapp.com/attachments/1014655788041642044/1025304103410217000/unknown.png" width="1000" height="450" ></code></a>
 <!--
 
