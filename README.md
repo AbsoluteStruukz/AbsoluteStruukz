@@ -24,12 +24,12 @@
 > > **Alert**
 > ```This user hates golang & json files!```
 ```md
-                         | ⛧ passedout@github.cum ⛧
-╔═╗═╗ ╦╔╦╗╦═╗╔═╗         | ──────────────────────────────
-║╣ ╔╩╦╝ ║ ╠╦╝║╣          | ϟ・t.me/boobjob
-╚═╝╩ ╚═ ╩ ╩╚═╚═╝         | ϟ・Known as Sleepy/Karma/Hadez/lex(y)
-                         | ──────────────────────────────
-                         | ⛧ muc.buhtig@tuodessap ⛧
+                      | ⛧ passedout@github.cum ⛧
+╔═╗═╗ ╦╔╦╗╔═╗         | ──────────────────────────────
+║╣ ╔╩╦╝ ║ ║╣          | ϟ・t.me/boobjob
+╚═╝╩ ╚═ ╩ ╚═╝         | ϟ・Known as Sleepy/Karma/Hadez/lex(y)
+                      | ──────────────────────────────
+                      | ⛧ muc.buhtig@tuodessap ⛧
 ├── Language
 │   ├── .Py
 │   ├── .Js
