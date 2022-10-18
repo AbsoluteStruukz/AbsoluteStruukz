@@ -25,11 +25,10 @@
 > ```This user hates golang & json files!```
 ```md
                    | ⛧ passedout@github.cum ⛧
-╦═╗╔╦╗═╗ ╦         | ϟ・t.me/boobjob
-╠╦╝ ║ ╔╩╦╝         | ϟ・t.me/tosviolators
-╩╚═ ╩ ╩ ╚═         | ϟ・Known as Exte/Sleepy/Karma/Hadez/lex(y)
+╔═╗╔╦╗═╗ ╦         | ϟ・t.me/boobjob
+╠═╣ ║ ╔╩╦╝         | ϟ・t.me/tosviolators
+╩ ╩ ╩ ╩ ╚═         | ϟ・Known as Exte/Sleepy/Karma/Hadez/lex(y)
                    | ⛧ muc.buhtig@tuodessap ⛧
- 
 
 ├── Language
 │   ├── .Py
