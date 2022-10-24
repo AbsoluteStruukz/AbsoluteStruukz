@@ -25,9 +25,9 @@
 > ```This user hates golang & json files!```
 ```md
                    | ⛧ passedout@github.cum ⛧
-╔═╗╔╦╗═╗ ╦         | ϟ・t.me/boobjob
-╠═╣ ║ ╔╩╦╝         | ϟ・t.me/tosviolators
-╩ ╩ ╩ ╩ ╚═         | ϟ・Known as Exte/Sleepy/Karma/Hadez/lex(y)
+╦╔═╔═╗╦═╗╔╦╗╔═╗    | ϟ・t.me/boobjob
+╠╩╗╠═╣╠╦╝║║║╠═╣    | ϟ・t.me/tosviolators
+╩ ╩╩ ╩╩╚═╩ ╩╩ ╩    | ϟ・Known as Atx/Exte/Sleepy/Karma/Hadez/lex(y)
                    | ⛧ muc.buhtig@tuodessap ⛧
 
 ├── Language
@@ -41,7 +41,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=2100&color=F7C433&lines=Have+something+to+say%3F;Without..;genuine+legally+accepted+proof%3F;Talk+to+my+dick.)](https://git.io/typing-svg)
 
 - [⤹ Socials](https://clippy.link/sex)
-- [DmdGO ⤾](https://discord.gg/HCYVsYbNff)
+- [DmdGO ⤾](https://t.me/tosviolators)
 
 <a href='https://discord.gg/wcd8GZkVKt'>
 <img src="https://cdn.discordapp.com/attachments/1004046623753646080/1032021528793071677/unknown.png" width="1000" height="450" ></code></a>
