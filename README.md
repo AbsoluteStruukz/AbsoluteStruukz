@@ -44,7 +44,7 @@
 - [DmdGO ⤾](https://t.me/tosviolators)
 
 <a href='https://discord.gg/wcd8GZkVKt'>
-<img src="https://cdn.discordapp.com/attachments/1004046623753646080/1032021528793071677/unknown.png" width="1000" height="450" ></code></a>
+<img src="https://data.whicdn.com/images/342088851/original.jpg" width="1000" height="450" ></code></a>
 <!--
 
 .-. .-')                            
