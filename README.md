@@ -17,7 +17,7 @@
 
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-1/426487419517272065.png)](https://discord.com) <a href='https://discord.gg/wcd8GZkVKt'>
 <img src="https://cdn.discordapp.com/attachments/1040408080950759434/1041090401643270278/unknown.png" width="75" height="75" ></code></a>
-<a href='https://discord.dog/1003739226870906981'> <img src="https://cdn.discordapp.com/attachments/1040408080950759434/1041089026079338586/97939997057.png" width="80" height="80" ></code></a>
+<a href='https://discord.dog/426487419517272065'> <img src="https://cdn.discordapp.com/attachments/1040408080950759434/1041089026079338586/97939997057.png" width="80" height="80" ></code></a>
 
 > **Warning**
 > This user is a registered sex offender.
