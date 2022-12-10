@@ -15,12 +15,12 @@
 
  <a href="https://discord.gg/q5afxvmf2B" target="_blank"><img src="https://komarev.com/ghpvc/?username=passedout&color=grey&style=flat-square" width="" height=""  target="_blank">
 
-[![DiscordProfileBanner](https://discord.c99.nl/widget/theme-1/947950557929295903.png)](https://discord.com)
+[![DiscordProfileBanner](https://discord.c99.nl/widget/theme-1/947950557929295903.png)](https://discord.com/users/947950557929295903)
 
 > **Warning**
 > This user is a registered sex offender.
-> > **Alert**
-> ```This user hates golang & json files!```
+> > **Free nitro @**
+> ```https://t.me/boobjob```
 ```md
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢰⣦⡀⠀⠀⠀⠀⠀⠀⢀⣴
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢰⣩⢕⢦⡀⠀⠀⢀⡴⡏⢸
