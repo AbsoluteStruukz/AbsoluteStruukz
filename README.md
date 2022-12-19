@@ -11,7 +11,7 @@
  `------'      `-----'      `-----' 
 -->
 ----
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=010101&lines=Adam(s) (aka. Karma))](https://discord.gg/q5afxvmf2B)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yellowtail&duration=4000&color=010101&lines=Kaiv (aka. Karma))](https://discord.gg/q5afxvmf2B)
 
  <a href="https://discord.gg/q5afxvmf2B" target="_blank"><img src="https://komarev.com/ghpvc/?username=passedout&color=grey&style=flat-square" width="" height=""  target="_blank">
 
