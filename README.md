@@ -15,7 +15,7 @@
 
  <a href="https://discord.gg/q5afxvmf2B" target="_blank"><img src="https://komarev.com/ghpvc/?username=passedout&color=grey&style=flat-square" width="" height=""  target="_blank">
 
-[![DiscordProfileBanner](https://discord.c99.nl/widget/theme-1/947950557929295903.png)](https://discord.com/users/947950557929295903)
+![DiscordProfileBanner](https://discord.c99.nl/widget/theme-1/140685798381977600.png)
 
 > **Warning**
 > This user is a registered sex offender.
@@ -23,16 +23,16 @@
 > ```https://t.me/boobjob```
 ```md
                             ,-.
-       ___,---.__          /'|`\          __,---,___
-    ,-'    \`    `-.____,-'  |  `-.____,-'    //    `-.
-  ,'        |           ~'\     /`~           |        `.
- /      ___//              `. ,'          ,  , \___      \
-|    ,-'   `-.__   _         |        ,    __,-'   `-.    |
-|   /          /\_  `   .    |    ,      _/\          \   |
-\  |           \ \`-.___ \   |   / ___,-'/ /           |  /
- \  \           | `._   `\\  |  //'   _,' |           /  /
-  `-.\         /'  _ `---'' , . ``---' _  `\         /,-'
-     ``       /     \    ,='/ \`=.    /     \       ''
+       ___,---.__          /'|`\          __,---,___             K
+    ,-'    \`    `-.____,-'  |  `-.____,-'    //    `-.           A
+  ,'        |           ~'\     /`~           |        `.      R
+ /      ___//              `. ,'          ,  , \___      \              M
+|    ,-'   `-.__   _         |        ,    __,-'   `-.    |                          A
+|   /          /\_  `   .    |    ,      _/\          \   |     Packing
+\  |           \ \`-.___ \   |   / ___,-'/ /           |  /        @
+ \  \           | `._   `\\  |  //'   _,' |           /  /          .gg
+  `-.\         /'  _ `---'' , . ``---' _  `\         /,-'              /
+     ``       /     \    ,='/ \`=.    /     \       ''                  listen
              |__   /|\_,--.,-.--,--._/|\   __|
              /  `./  \\`\ |  |  | /,//' \,'  \
             /   /     ||--+--|--+-/-|     \   \
