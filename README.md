@@ -33,12 +33,12 @@
  \  \           | `._   `\\  |  //'   _,' |           /  /              @
   `-.\         /'  _ `---'' , . ``---' _  `\         /,-'                .gg
      ``       /     \    ,='/ \`=.    /     \       ''                      /
-             |__   /|\_,--.,-.--,--._/|\   __|                               
+             |__   /|\_,--.,-.--,--._/|\   __|                               bios
              /  `./  \\`\ |  |  | /,//' \,'  \
             /   /     ||--+--|--+-/-|     \   \                  https://
-           |   |     /'\_\_\ | /_/_/`\     |   |                         wanted.lol
-            \   \__, \_     `~'     _/ .__/   /                          /
-             `-._,-'   `-._______,-'   `-._,-'                           卐
+           |   |     /'\_\_\ | /_/_/`\     |   |                         discord.gg
+            \   \__, \_     `~'     _/ .__/   /                       /
+             `-._,-'   `-._______,-'   `-._,-'                         bios
 ```
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=2100&color=F7C433&lines=Have+something+to+say%3F;Without..;genuine+legally+accepted+proof%3F;Talk+to+my+dick.)](https://discord.gg/ur5gkJeGND)
