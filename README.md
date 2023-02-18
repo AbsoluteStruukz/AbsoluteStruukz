@@ -15,7 +15,7 @@
 
  <a href="https://discord.gg/ur5gkJeGND" target="_blank"><img src="https://komarev.com/ghpvc/?username=passedout&color=grey&style=flat-square" width="" height=""  target="_blank">
 
-![DiscordProfileBanner](https://discord.c99.nl/widget/theme-1/996464036692639764.png)
+![DiscordProfileBanner](https://discord.c99.nl/widget/theme-1/122732931218145281.png)
 
 > **Warning**
 > This user is a registered sex offender.
