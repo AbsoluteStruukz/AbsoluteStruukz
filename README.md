@@ -43,11 +43,11 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=2100&color=F7C433&lines=Have+something+to+say%3F;Without..;genuine+legally+accepted+proof%3F;Talk+to+my+dick.)](https://discord.gg/ur5gkJeGND)
 
-- [⤹ ABOUT](https://feds.lol/im)
+- [⤹ REP](https://ogusers.gg/boy)
 - [DMDGO ⤾](https://t.me/tosviolators)
 
 <a href='https://discord.gg/ur5gkJeGND'>
-<img src="https://cdn.discordapp.com/attachments/1050935456163962950/1051151836847018025/download_84.jpg" width="1000" height="450" ></code></a>
+<img src="https://cdn.discordapp.com/attachments/1076656335032156271/1080830151127998534/TY2fp0i.gif" width="1000" height="450" ></code></a>
 <!--
 
 .-. .-')                            
