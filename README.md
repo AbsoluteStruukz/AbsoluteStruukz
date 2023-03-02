@@ -19,8 +19,8 @@
 
 > **Warning**
 > This user is a registered sex offender.
-> > **Free nitro @**
-> ```https://t.me/boobjob```
+> > **Free eseggs @**
+> ```https://t.me/discum```
 ```md
                             ,-.
        ___,---.__          /'|`\          __,---,___             K
